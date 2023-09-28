@@ -14,7 +14,7 @@ Bem-vindo(a) ao meu perfil 😁
  
 <br>
  
-###Podes me encontrar tambem nas redes abaixo!
+Podes me encontrar tambem nas redes abaixo!
  
 <div> 
 
